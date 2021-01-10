@@ -1,1 +1,1 @@
-[rusik.me](#rusik.me)
+[rusik.me](#https://rusik.me/)
